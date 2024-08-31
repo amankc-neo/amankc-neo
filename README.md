@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @amankc-neo
+- 👋 Hi, I’m Aman Choudhary @amankc-neo
 - 👀 I’m interested in mastering DevOps and Cloud technologies, AI/ML, money, etc .
 - 🌱 I’m currently learning Cloud DevOps .
 - 💞️ I’m looking to collaborate on projects related to above mentioned topics
