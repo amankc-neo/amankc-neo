@@ -2,5 +2,5 @@
 - 👀 I’m interested in mastering DevOps and Cloud technologies, AI/ML, etc .
 - 🌱 I’m currently learning Cloud DevOps .
 - 💞️ I’m looking to collaborate on projects related to above mentioned topics
-- 📫 Reach me at caman2568@gmail.com, amanambrozzee@gmail.com , Fb - https://www.facebook.com/aman.ambrose.1, Instagram - https://www.instagram.com/____neo1/, Linkedin - www.linkedin.com/in/amankc-neo/
+- 📫 Reach me at caman.neo01@gmail.com, caman2568@gmail.com , Fb - https://www.facebook.com/aman.ambrose.1, Instagram - https://www.instagram.com/____neo1/, Linkedin - www.linkedin.com/in/amankc-neo/
 - 😄 Pronouns: he/him
